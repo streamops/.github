@@ -1,1 +1,3 @@
-StreamOps ftw!
+StreamOps , this is going private... 
+I no longer care about replacing myself as a mod and helping other twitch mods. 
+I have other purposes for this now 
